@@ -2,8 +2,8 @@
 
 🎓 Automation Engineer 
 📍 Based in Kerala
-🏢 Working at Profisolutions PVT LTD
+🏢 Working at Profisolutions PVT LTD CHENNAI
 
 ## 📫 Contact me
-- LinkedIn: [linkedin.com/in/sreenav](https://linkedin.com/in/sreenav)
-- GitHub: [github.com/sreenav](https://github.com/sreenav)
+- Instagram: [https://instagram.com/sreeenav]
+- Email: sreenavsree43@gmail.com
